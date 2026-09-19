@@ -32,9 +32,9 @@ e, algo que está fora do nosso controle, mas que acreditamos muito, é a abertu
 
 ---
 
-## Quando custa?
+## Quanto custa?
 
-A participação no grupo custa uma mensalidade de R$ 199 (e 10% off, caso se inscreva anualmente).
+A participação no grupo custa uma mensalidade de R$ 199 (ou R$ 1.990, caso se inscreva anualmente).
 
 As vagas são limitadas: estamos fazendo essa primeira leva só para convidados.
 

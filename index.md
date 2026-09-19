@@ -6,34 +6,35 @@
 
 Olá,
 
-Se você está por aqui é porque recebeu um convite para participar de uma *comunidade do livro*. Seja bem-vindo.
+Se você está por aqui é porque recebeu um convite especial para participar da *Comunidade do livro*. Seja bem-vindo.
 
-Somos profissionais apaixonados por falar e aprender mais sobre livros e sobre nosso mercado, e decidimos organizar essa vontade em um grupo contínuo de reflexão. Temos às vezes essa troca em momentos especiais, normalmente entre estandes de algum evento ou em raros cafés ☕ ou cervejas 🍺.
+Somos um grupo de profissionais apaixonados por conversar e aprender mais sobre livros e sobre nosso mercado, e decidimos organizar essa vontade em um grupo contínuo de reflexão, aprendizagem e troca. Temos às vezes isso em encontros em momentos especiais, normalmente entre estandes de algum evento ou em raros cafés ou cervejas.
 
-Queremos abrir espaço para fazer isso de forma organizada e, melhor, convidar nossos digníssimos amigos e colegas para somar a essa troca. Nossa ideia é simples.
+Mas queremos mais. Por isso abrimos esse espaço para fazer isso de forma organizada e, melhor, expandir o papo e convidar queridos amigos e colegas para somar a essa troca. Nossa ideia é simples.
 
 ---
 
-## O principal, mensalmente
+## O que fazemos? ✨
 
 - **1 encontro de 1h30 por Zoom nas primeiras segundas-feiras do mês, à noite.**
 
-Vamos eventualmente chamar convidados que possam nos elucidar ou ensinar sobre algum ponto ou tema que queiramos discutir, brasileiros e gringos, e, a partir dessa deixa, elaborar uma discussão em grupo, com a participação de quem quiser.
+Além de discutirmos temas pré-combinados, queremos chamar convidados que possam nos elucidar ou ensinar sobre algum ponto ou tema que queiramos discutir, brasileiros e gringos, e, a partir dessa deixa, expandir nossa discussão em grupo, com a participação de todos.
 
-## Além disso
+e também:
 
-- acesso à comunidade no Circle, com fórum, perfis dos participantes e referências compartilhadas;
-- 1 newsletter mensal com reflexões ou cases de profissionais do livro;
 - 1 grupo de WhatsApp com essas pessoas lindas, elegantes e sinceras;
+- acesso à comunidade no Circle, com fórum, perfis dos participantes e referências compartilhadas;
 - 1 encontro anual durante a Flip;
-- troca sobre seus projetos;
+- troca sobre projetos pessoais;
 - clube do livro (opcional, afinal nem todos conseguimos ler muito além do trabalho) para discutir livros sobre livros.
+  
+e, algo que está fora do nosso controle, mas que acreditamos muito, é a abertura de todos os participantes para trocas descentralizadas, encontros, parcerias, negócios etc.
 
 ---
 
-## Participação
+## Quando custa?
 
-A participação no grupo custa uma mensalidade de **R$ 199** ou uma anuidade de **R$ 1.990**.
+A participação no grupo custa uma mensalidade de R$ 199 (e 10% off, caso se inscreva anualmente).
 
 As vagas são limitadas: estamos fazendo essa primeira leva só para convidados.
 
@@ -41,5 +42,5 @@ As vagas são limitadas: estamos fazendo essa primeira leva só para convidados.
 
 ---
 
-Organização de **Daniel Lameira**.
+Organização de Daniel Lameira.
 Com participações de Antonio Hermida, Gustavo Faraon e Rita Mattar.

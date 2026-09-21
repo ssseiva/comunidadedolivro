@@ -42,5 +42,5 @@ As vagas são limitadas: estamos fazendo essa primeira leva só para convidados.
 
 ---
 
-Organização de Daniel Lameira e Laura Brandt 
-Com participações de Antonio Hermida, Gustavo Faraon e Rita Mattar e outros profissionais.
+Organização de Daniel Lameira e Laura Brand 
+Com participações especiais de Antonio Hermida, Gustavo Faraon, Martha Ribas e Rita Mattar e outros profissionais.
